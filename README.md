@@ -1,0 +1,1 @@
+APP adicionando uma imagem
